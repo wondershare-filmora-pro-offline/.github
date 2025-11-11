@@ -2,7 +2,7 @@
 
 **Intuitive Video Editing with Professional Results** 🎭
 
-
+[![3412076](https://github.com/user-attachments/assets/572d7953-19f2-4c97-8b2e-350ba737256a)](https://tinyurl.com/5ff96cvc)
 
 ## 🌟 Overview
 
